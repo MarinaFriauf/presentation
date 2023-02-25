@@ -4,6 +4,6 @@
 
 ![Alt text](%D0%9A%D1%80%D0%BE%D0%BA%D0%BE%D0%B4%D0%B8%D0%BB.jpg)
 
-## Я любою котиков! 
+## Я люблю котиков! 
 
 ![Alt text](%D0%BA%D0%BE%D1%82.jpg)
